@@ -1,10 +1,5 @@
 # DSS_Bootcamp2021
 
-## Welcome video
-
-*include link to video here*
-
-
 ## Lectures
 
 ### Session 1: Random variables and distributions
