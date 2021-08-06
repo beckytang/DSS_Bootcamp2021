@@ -32,20 +32,20 @@
 
 ### Day 1
 
-<!-- - [Video](https://duke.zoom.us/rec/share/vZJnK-rv_19OWpHd-nzfS5Y5Q561aaa81iYd-PYPxUYmoy2mRGBhn504gLQVBweL) -->
+- [Video](https://duke.zoom.us/rec/share/K5-apgxTPRiL-oZRh_o6l72Pwwpu04x8e9yc3moFeOKbD3tKGJAYvKvXlRLlLVUl.FtN0N4X71Y0_4F48)
 
 ### Day 2
 
-<!-- - [Video](https://duke.zoom.us/rec/share/w8VnKrjC00BLQYnTtm3tYoQwGpWiT6a8gyEb__ANmB7Avso0El73ansNeeq3Ku5c) -->
+- [Video](https://duke.zoom.us/rec/share/9J-OQlzO9FkrW-1cDD3Bu50g7sRuO4A5Ss2LFm8oBUxfp8o693mxbhmPp3TvMUzk.14zWcxl7P6lDxm3d) 
 
 ### Day 3
 
-<!-- - [Video](https://duke.zoom.us/rec/share/ws4sJJe30FlIbKv9zn-AW4AOBYPLX6a80SMW-KZen3z0WDnH23xPBcn9NYZPGLg) -->
+- [Video](https://duke.zoom.us/rec/share/h4XK1Qpx_n5lQ9TCPRjRAE8BDe_-69N-zwy9K1qS9aj_862Z7kLfkIXUaOcEPSuw.9R0jWMQtOAbkg8oH)
 
 ### Day 4
 
-<!-- - [Video](https://duke.zoom.us/rec/share/7PNNPZfM9WVOb7fTwxvSdaAsEY78aaa80CcarKAJyR4ltwpXgbMBWq7h7Y5YiNtG) -->
+- [Video](https://duke.zoom.us/rec/share/LUNFFLeftylOUYH-ubJ7OI1bfvK4A6p4Hzd3F3GldLHi_-DlxfSfxRtvjUyeA_sf.4FxpR1hJ2p1zc4l8)
 
 ### Day 5
 
-<!-- - [Video](https://duke.zoom.us/rec/share/28Mqc5Dt5llIco2Q2EjEY4UwHNnuX6a8h3NL-PUKzRvP2ZImgREhmOammR8rS4x3) -->
+- [Video](https://duke.zoom.us/rec/share/7UuEV8_583KwIItKZ9HW02yZo8xaTTugbyPocAj3CvHcoIcnNsGQXxiSaN8B6-4H.y3Spk4_2DXYUNwd_)
